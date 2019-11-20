@@ -14,7 +14,7 @@ https://www.youtube.com/watch?v=ed8SzALpx1Q
 https://www.youtube.com/watch?v=Y0lDGjwRYKw&list=PL4cUxeGkcC9iK6Qhn-QLcXCXPQUov1U7f
 
 
-- 🙏🙏🙏 Thanks to  <b>Shaun Pelling</b> ( Creator of Net Ninja YouTube Channel )
+- 🙏🙏🙏 Thanks to  <b>Shaun Pelling</b> @iamshaunjp ( Creator of Net Ninja YouTube Channel )
  
 ### Demo Page
 
